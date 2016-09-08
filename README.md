@@ -1,1 +1,0 @@
-# T3DM-000017-Antenna-fitting
